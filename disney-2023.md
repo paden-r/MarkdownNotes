@@ -14,7 +14,6 @@ Saturday 1/28
    - Gideon's 
    - Beers at a random beer cart
    - World of Disney again
-   - Back to the Polynesian
 
 Sunday 1/29
 Animal Kingdom
@@ -96,6 +95,8 @@ Epcot
 - Guardians (virtual queue)
 - La Creperie de Paris
 - Wandering around the world showcase
+- Mitsukoshi
+- Art of Disney
 - Cava del Tequila
 - Creation Shop
 - Guardians (Lightning lane)
