@@ -1,7 +1,6 @@
 ### Ingredients
 -   1/4 cup quinoa
--   1/4 cup coconut milk
--   1/4 cup water
+-   1/2 cup coconut milk
 -   1/4 cup blueberries
 -   1 tbsp coconut sugar
 -   1/4 cup vanilla yogurt
