@@ -1,3 +1,6 @@
+### Notes
+- Didn't go as planned.  Try [[Chicken Gyro Wrap]] instead.
+
 ### Ingredients
 * 2 medium to large Pita Bread
 * [[Flank Steak]]

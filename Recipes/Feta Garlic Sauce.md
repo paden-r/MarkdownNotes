@@ -1,3 +1,6 @@
+### Notes
+- Very salty and needs something to counter act the salt
+
 ### Ingredients
 -   4oz (113g) feta cheese
 -   8 cloves garlic, grated
