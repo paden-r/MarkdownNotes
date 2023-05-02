@@ -12,6 +12,8 @@
    ![[Pasted image 20230502144115.png]]
 
 ## Supports
+1. Add the supports so they are centered with the left and right base ribs.  Pocket holes for all supports
+2. Add the supports on the sides of the base, with a 13 2/3" gap between the supports.  The 13 2/3" gap should be the same from the front of the base to the first support, between the two supports, and from the back of the base to the support.
 
 ![[Pasted image 20230502150141.png]]
 
