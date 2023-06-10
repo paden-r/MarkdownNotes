@@ -1,10 +1,10 @@
 ### Ingredients
- - [Cilantro Lime Rice]
+ - [[Cilantro Lime Rice]]
  - Marinated Chicken Thighs
  - 2 Green Bell peppers
  - 1 Onion
  - 1 can black beans
- - [Street Corn]
+ - [[Street Corn]]
  - Guac
  - Red/Green Salsa
  - Pico
