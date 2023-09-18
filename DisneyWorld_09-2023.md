@@ -7,8 +7,11 @@ Disney Springs
 - Gideon's (About a 30-minute line)
 - World of Disney
 - Homecoming for lunch
+
 Back to Swan for a break
+
 Walk to the Boardwalk for the bus to Magic Kingdom
+
 Magic Kingdom (MNSSHP) - about 6 p.m.
 - Wristband and Candy bag lines (This is the first thing that happens)
 - Main Street Bakery
@@ -25,6 +28,7 @@ Magic Kingdom (MNSSHP) - about 6 p.m.
 - Space Mountain  
 - Tron  
 - Space Mountain  
+
 Stopped to watch the next showing of Hocus Pocus.  Left MK around 12:30 and got back to the hotel around 1 a.m. after taking the bus back to Boardwalk and walking to the Swan.
 Step Count: 22,800
   
@@ -69,16 +73,21 @@ Epcot
 - Morocco pavilion  
 - Remy's  
 - Shiki Sai
+
 (All of the pavilion callouts signify where we bought food or a drink from the pavilion)
 Walked back to the Swan from Epcot around 10:30 p.m.
+
 Step Count: 33,600
   
 ## September 14th
 Early morning ILL selections
 - Rise ILL
+
 Lyft to Animal Kingdom Lodge for breakfast
 - Boma
+
 Bus to Animal Kingdom
+
 Animal Kingdom  
 - Safari  
 - Creature Comforts  (coffee run)
@@ -94,4 +103,5 @@ Hollywood Studios
 - midway mania
 
 Head back to the hotel to grab bags and head home
+
 Step count: 20,000
