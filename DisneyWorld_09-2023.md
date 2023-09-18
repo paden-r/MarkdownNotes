@@ -30,6 +30,7 @@ Magic Kingdom (MNSSHP) - about 6 p.m.
 - Space Mountain  
 
 Stopped to watch the next showing of Hocus Pocus.  Left MK around 12:30 and got back to the hotel around 1 a.m. after taking the bus back to Boardwalk and walking to the Swan.
+
 Step Count: 22,800
   
 ## September 13th
