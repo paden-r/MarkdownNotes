@@ -8,7 +8,7 @@
 - pinch kosher salt
 - 1/4 cup milk
 - [[Blueberry Cream Cheese Frosting]]
-- [[Blueberry Compote]]
+- [[Blueberry Compote]] (optional filling)
 
 ### Method
 1. Preheat the oven to 350°F and line a 24-cup mini cupcake pan with mini cupcake liners.
