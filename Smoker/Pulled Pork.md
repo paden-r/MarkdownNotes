@@ -23,3 +23,12 @@
 8. Remove the bone from the pork roast and using gloves shred the meat.
 
 ## Notes
+
+### First Smoke
+- Mesquite
+- CAM is closed
+- Going to try to spray with apple cider vinegar when refreshing wood chips
+- Meat too large, didn't hit 200 temp.
+- Corn and potatoes cooked well
+	- 2 hours with potatoes
+	- 1 hour with corn
