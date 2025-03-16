@@ -3,10 +3,10 @@
 - Add protein powder afterwards
 
 ### Ingredients
-- 2 cups frozen banana
-- 1 cup organic baby spinach
+- 2 (600 g) cups frozen banana
+- 1.5 oz organic baby spinach
 - 2 tbsp peanut butter
-- 2 cups almond milk
+- 1.5 cups almond milk
 - 1 tbsp chia seeds
 
 ### Method
